@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **priyanshunarayan74@gmail.com,**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1zcOFUSDCL5ZF9q_ZeULcD0iNui_zDsYU/view?usp=sharing](https://drive.google.com/file/d/1zcOFUSDCL5ZF9q_ZeULcD0iNui_zDsYU/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1zcOFUSDCL5ZF9q_ZeULcD0iNui_zDsYU/view?usp=sharing](https://drive.google.com/file/d/1_OLLtSLAkO_z-bT0f0cBh34_-H8aGRNC/view?usp=sharing)
 
 - ⚡This is not my current work experiences **It will be updated shortly as i have new projects and worksongoing**
 
